@@ -1,2 +1,3 @@
 # sarada
-saradaga gelkutuna
+## chal dengey 
+mawa time pass ke chesina
